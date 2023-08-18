@@ -1,2 +1,2 @@
-Website available at : https://iamharshit188.github.io/PinkPearls
+Website available at : https://khushiiigupta.github.io/PinkPearls
 
